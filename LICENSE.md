@@ -1,4 +1,4 @@
-
+rare Plugin for AnyDesk for macOS - custom-branding and remote-printing offers the most advanced AnyDesk for macOS plugin, with custom-branding and remote-printing. Ideal for
 
 
 
